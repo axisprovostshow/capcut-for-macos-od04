@@ -1,4 +1,4 @@
-# 
+# CapCut for macOS top Effect: video-stabilization & voice-enhancement is the best CapCut for macOS effect, featuring video-stabilization and voice-enhancement. Safe, efficient, and
 
 
 
